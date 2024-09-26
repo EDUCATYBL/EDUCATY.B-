@@ -1,1 +1,1 @@
-# EDUCATY.B-
+# EDUCATY.B|
